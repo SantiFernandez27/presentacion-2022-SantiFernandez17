@@ -1,5 +1,5 @@
 ### ***Santiago Fernandez***
-Hola buenas! Mi nombre es *Santiago Fernández*, vivo en Merlo y estudio la carrera Ingenieria en Sistemas de Información en la UTN desde 2021.
+Hola buenas! Mi nombre es *Santiago Fernández*, vivo en Merlo y estudio la carrera Ingenieria en Sistemas de Información en la UTN desde 2021, mi legajo es 173.222-5 
 **Dejo por aquí algunos de mis Hobbies
   Me gusta ver peliculas, mi favorita es Cars 2
   Me gusta jugar al CSGO -> Si queres agregarme en [steam](https://steamcommunity.com/profiles/76561199032614379) para jugar sos bievenido/a (:.
